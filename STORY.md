@@ -10,4 +10,8 @@ But wait, they weren't dancing, they were evolving!
 
 All of a sudden there is a huge explosion! A few people scream, but then a "whoop!" goes up, as the explosion is GLITTER!
 
+As eevee arrived, the crowd cheered and the strobelights started!
+
+![Alt Text](https://github.com/freenat/pikachu/blob/master/1b.8063817.gif)
+
 THE END

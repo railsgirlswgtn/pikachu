@@ -16,4 +16,8 @@ All people evolved to a bunch of Pikachu`s.
 
 ![Alt Text](https://github.com/freenat/pikachu/blob/master/1b.8063817.gif)
 
+And then it started raining poison dart frog eating pancakes.
+
+Everyone died and poison dart frog eating pancakes ruled the world.
+
 THE END

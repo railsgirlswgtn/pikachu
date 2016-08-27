@@ -12,6 +12,8 @@ All of a sudden there is a huge explosion! A few people scream, but then a "whoo
 
 As eevee arrived, the crowd cheered and the strobelights started!
 
+All people evolved to a bunch of Pikachu`s.
+
 ![Alt Text](https://github.com/freenat/pikachu/blob/master/1b.8063817.gif)
 
 THE END

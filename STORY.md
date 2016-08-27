@@ -9,11 +9,11 @@ They were doing the Macarena while wearing animal hats.
 
 But wait, they weren't dancing, they were evolving!
 
+All people evolved to a bunch of Pikachus.
+
 All of a sudden there is a huge explosion! A few people scream, but then a "whoop!" goes up, as the explosion is GLITTER!
 
 As eevee arrived, the crowd cheered and the strobelights started!
-
-All people evolved to a bunch of Pikachus.
 
 ![Alt Text](https://github.com/freenat/pikachu/blob/master/1b.8063817.gif)
 

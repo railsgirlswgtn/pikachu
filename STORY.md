@@ -3,6 +3,7 @@
 It was a beautiful sunny day as Pikachu stepped off the ferry.
 
 For some reason, there was a huge queue outside EDA. Of people dancing.
+![Alt Text](https://m.popkey.co/7d5b9a/47oQR.gif)
 
 They were doing the Macarena while wearing animal hats.
 

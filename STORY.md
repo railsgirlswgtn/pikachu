@@ -21,6 +21,6 @@ All of the people evolved to a storm of Pikachus.
 
 And then it started raining poison dart frog eating pancakes.
 
-Everyone died and poison dart frog eating pancakes ruled the world.
+Everyone got along with the raining poison dart frog eating pancakes and we both ruled the world together.
 
 THE END

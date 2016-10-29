@@ -10,7 +10,7 @@ But wait, they weren't dancing, they were evolving!
 
 All of a sudden there is a huge explosion! A few people scream, but then a "whoop!" goes up, as the explosion is GLITTER!
 
-As eevee arrived, the crowd cheered and the strobelights started!
+As Eevee arrived, the crowd cheered and the strobelights started!
 
 All of the people evolved to a bunch of Pikachus.
 

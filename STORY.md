@@ -12,7 +12,7 @@ All of a sudden there is a huge explosion! A few people scream, but then a "whoo
 
 As Eevee arrived, the crowd cheered and the strobelights started!
 
-All of the people evolved to a bunch of Pikachus.
+All of the people evolved to a storm of Pikachus.
 
 ![Alt Text](https://github.com/freenat/pikachu/blob/master/1b.8063817.gif)
 
